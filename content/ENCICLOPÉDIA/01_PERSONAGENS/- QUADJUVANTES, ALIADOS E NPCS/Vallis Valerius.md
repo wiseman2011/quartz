@@ -1,0 +1,3 @@
+
+
+Vallis foi um dos grandes monarcas da linhagem Valerius, governando séculos antes dos eventos atuais. Diferente de Leon, que busca a reconquista, Vallis foi o responsável por **preservar** o que restava após as primeiras grandes guerras dracônicas. Vallis estabeleceu as bases místicas e as leis que regem a família. Enquanto Leon representa a **força bruta e o renascimento**, Vallis é frequentemente lembrado como o **estrategista e o sábio** que preferiu as sombras do segredo à exposição da glória.
